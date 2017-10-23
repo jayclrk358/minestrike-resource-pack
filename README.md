@@ -1,0 +1,1 @@
+# minestrike-resource-pack
